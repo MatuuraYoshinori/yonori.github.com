@@ -4,7 +4,3 @@ aaaaa
 aaaaa
 
 aaaa
-aaaaa
-aaaa
-aaaaa
-なにやろうとしたかわからん・・・
